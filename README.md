@@ -1,2 +1,1 @@
-# halloffame
-The hall of fame, curated by me and me only.
+![](https://cdn.discordapp.com/attachments/661473222444711942/676554381633781780/Untitled_design15.jpg)
